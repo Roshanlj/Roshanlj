@@ -3,7 +3,7 @@ Hi ![](https://user-images.githubusercontent.com/18350557/176309783-0785949b-912
 
 B.Tech Student from KJ Somaiya College of Engineering
 
-* 🌍  I'm based in India
+* 🌍  I'm based in Mumbai
 * ✉️  You can contact me at [roshanjadhav669@gmail.com](mailto:roshanjadhav669@gmail.com)
 
 ### Skills
